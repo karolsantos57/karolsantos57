@@ -3,4 +3,4 @@
 - 📕 Formada em ánalise e desenvolvimento de sistemas    
 - 📧 Contate-me no e-mail: karoenesantos57@gmail.com  
 - 📈 Linkedin:https://www.linkedin.com/in/karoene-santos-0b839519a/
-- 
+  
